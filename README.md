@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Josh
+### Hi there 👋 I'm Josh :bowtie:
 
 A little about me.
 
